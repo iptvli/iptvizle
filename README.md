@@ -1,4 +1,4 @@
-# 📡 IPTV Canlı Ve En İyi Yayın Deneyimi
+# IPTV Canlı Ve En İyi Yayın Deneyimi
 
 ## 🚀 Hakkında
 Yüksek kaliteli IPTV hizmetimizle, kesintisiz ve düşük gecikmeli yayın deneyimi sunuyoruz. Spor, sinema, belgesel ve daha fazlasını en iyi görüntü kalitesinde izleyin!
